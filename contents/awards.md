@@ -1,13 +1,13 @@
-- National Scholarship of Graduate Student, 2024.
+- Excellent Graduation Thesis of NNU, 2024.
 
-- First-prize Scholarship of CUMT, 2024.
+- Xingzhi Talents Scholarship of NNU, 2022.
 
-- First-prize Scholarship of CUMT, 2023.
+- First-prize Scholarship of NNU, 2022.
 
-- Freshman Scholarship of CUMT, 2022.
+- Three-Good Student of NNU, 2021.
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
+- Freshman Scholarship of NNU, 2020.
 
-- First-prize Enterprise Scholarship of CUMT, 2020.
+  
 
-- First-prize Scholarship of CUMT, 2019.
+  
